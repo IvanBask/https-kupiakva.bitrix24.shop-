@@ -1,1 +1,1 @@
-# https-kupiakva.bitrix24.shop-
+# https-kupiakva.bitrix24.shop
